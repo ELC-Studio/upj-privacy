@@ -38,5 +38,5 @@ Wir können unsere Datenschutzrichtlinie von Zeit zu Zeit aktualisieren. Es wird
 
 Kontaktiere uns
 Wenn Sie Fragen oder Anregungen zu unserer Datenschutzrichtlinie haben, zögern Sie nicht, uns zu kontaktieren.
-Kontaktinformation:
+Kontaktinformation:  
 E-Mail: [upjapp@gmail.com]
